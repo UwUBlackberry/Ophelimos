@@ -12,13 +12,11 @@ Translating Emotion to Magic
 [[Wind]] = Acceptance, serenity, rage, vigilance, remorse
 [[Gravity]] = Distrust, acceptance, anticipation, interest
 [[Electricity]] = Ecstasy, optimism, aggression, boredom, terror, fear
-[[Egoic Magic]]
-[[Floramancy]]
-[[Mycomancy]]
-[[Hemomancy]]
-[[Shadow Magic]]
-[[Color Magic]]
-[[Sound Magic]]
+[[Egoic Magic]] = Vigilance, love, rage, optimism
+[[Floramancy]] = Serenity, love, awe, amazement, joy
+[[Shadow Magic]] = Submission, fear, apprehension, grief, boredom
+[[Color Magic]] = Amazement, surprise, optimism, joy, admiration
+[[Sound Magic]] = Anticipation, aggression, boredom
 [[Space]] = Awe, amazement, terror, serenity
 [[Psychic]]
 [[Life]]
