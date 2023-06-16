@@ -1,0 +1,1 @@
+A sub-type of [[Fire]]
