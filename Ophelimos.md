@@ -40,7 +40,6 @@
  [[Neraida]]
  [[Pano Apo]]
  [[Snowfalls]]
- [[Fae Realm]]
 
 [[Races]]
  [[Elemental]]
