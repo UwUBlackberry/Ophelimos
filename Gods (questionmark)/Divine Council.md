@@ -1,6 +1,6 @@
-The [[Divine Council]] is a council made up of 50 [[Gods]]
+The [[Divine Council]] is a council made up of 50 [[Gods]] to help make the ruling of separate dimensions and making other godly decisions easier. 
 
-
+They also host bi weekly game and movie nights on Friday 
 
 **Βασιλιάς (Literal Translation: King)
 
