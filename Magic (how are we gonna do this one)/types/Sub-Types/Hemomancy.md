@@ -1,1 +1,0 @@
-a sub-type of [[Death]]

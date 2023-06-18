@@ -1,0 +1,3 @@
+*[[Gold-Bloods]] are magic users that gain their magic simply by being born. They can be born with up to 5 separate types of [[Magic]] (Fire, earth, water, etc.) depending on their species. Also depending on species, they are capable of completely understanding their magic before they understand how to walk. In other cases, some don't even learn that they have magic until late into being a teenager.
+
+*The reasoning to[[Gold-Bloods]] being named "Gold-Bloods" is due to Gold-Bloods born with particularly strong magic actually having [[Gold Blood]]. They gain [[Gold Blood]] due to the powerful magic spreading through their body when they were young.

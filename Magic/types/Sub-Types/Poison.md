@@ -1,0 +1,1 @@
+A sub-type combination of [[Magic]] between [[Water]] and [[Death]]

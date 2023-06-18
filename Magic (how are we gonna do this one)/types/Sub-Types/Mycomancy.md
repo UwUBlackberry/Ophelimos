@@ -1,1 +1,0 @@
-A sub-type of [[Floramancy]]
