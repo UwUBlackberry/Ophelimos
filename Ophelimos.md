@@ -19,7 +19,7 @@
    [[Shadow Magic]]
    [[Sound Magic]]
    [[Space]]
-   [[Time (This one is just an idea but it'd probably be one of the most powerful type of magic or it'd be limited (It'd be limited either way))]]
+   [[Time]]
    [[Void Magic]]
    [[Water]]
    [[Wind]]
