@@ -1,9 +1,25 @@
 [[Gods]]
- [[Divine Council]]
+ Hierarchy: [[Divine Council]]
+ Types of God
+  [[Non Mythical God]]
+  [[Mythical Gods]]
  [[Petal Komiko]]
  [[Avery Todd Fields]]
+ [[Dream]]
+ [[Dynami]]
+ [[Mori]]
+ [[Kiros]]
+ [[Lore]]
+ [[Nightmare]]
+ [[Shoob]]
+ [[Tou]]
+ [[Worn]]
 
 [[Magic]]
+ Types of Users
+   [[Gold-Bloods]]
+   [[Magicians]]
+   [[Quavers]]
  Types
    [[Anti (It's a no u but for everything including magic)]]
    [[Color Magic]]

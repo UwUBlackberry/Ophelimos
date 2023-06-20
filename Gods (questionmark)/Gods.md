@@ -7,3 +7,14 @@
 *All Gods except for those who were originally mortal are capable of completely changing the shape of their body
 
 *In most cases the already existing gods teach the mythical gods how to harness the power that they have gained though on occasion Mythical Gods are left on their own, not understanding their own power and very rarely ever understanding how it works before millennia have already passed.
+
+
+List
+ [[Dream]]
+ [[Nightmare]]
+ [[Dynami]]
+ [[Kiros]]
+ [[Lore]]
+ [[Mori]]
+ [[Shoob]]
+ [[Tou]]
