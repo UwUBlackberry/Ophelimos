@@ -6,7 +6,7 @@
 [[Kato Apo]]
  [[Kato Culture]]
 
-[[Elysium Apo]]
+[[Elysium]]
  [[Elysium Culture]]
 
 [[Medieval]]

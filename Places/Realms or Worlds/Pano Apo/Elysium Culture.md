@@ -1,1 +1,0 @@
-The base culture of [[Elysium Apo]]
