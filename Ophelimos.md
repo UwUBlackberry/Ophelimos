@@ -55,7 +55,7 @@
  [[Medieval]]
  [[Modern]]
  [[Neraida]]
- [[Pano Apo]]
+ [[Elysium Apo]]
  [[Snowfalls]]
 
 [[Races]]
