@@ -7,8 +7,16 @@ They also host bi weekly game and movie nights on Friday hosted by Pedal
 
 **Lyrics
 [[Petal Komiko]]
+[[Aruel]]
+[[Dream]]
+[[Nightmare]]
+[[Lore]]
+[[Shoob]]
+[[Tou]]
 
 **Melody
 [[Avery Todd Fields]]
+[[Kiros]]
+[[Worn]]
 
 **Symphony
