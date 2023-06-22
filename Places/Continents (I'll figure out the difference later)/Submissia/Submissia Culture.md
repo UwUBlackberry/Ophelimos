@@ -1,0 +1,1 @@
+In [[Submissia]], when people would have sex, both parties want to be dominated, but the other wouldn’t act on that because they wanted the other to, thus sex in [[Submissia]] was practically impossible. 

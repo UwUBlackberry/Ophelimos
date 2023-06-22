@@ -58,6 +58,10 @@
  [[Elysium]]
  [[Snowfalls]]
 
+[[Continents]]
+ [[Submissia]]
+ [[Dominatus]]
+
 [[Races]]
  [[Elemental]]
  [[Elf]]

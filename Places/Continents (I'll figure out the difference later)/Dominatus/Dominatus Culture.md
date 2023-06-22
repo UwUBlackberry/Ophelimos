@@ -1,0 +1,1 @@
+In [[Dominatus]] when people would have sex they both would want to dominate the other, so it would be a constant struggle for supremacy

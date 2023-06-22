@@ -1,0 +1,1 @@
+[[Dominatus]] was cursed so that all that lived on their land would be tops.
