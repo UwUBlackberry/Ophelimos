@@ -1,0 +1,9 @@
+- Draw a map of the realms and where they are in space and time
+- Draw maps
+- Make more [[Races]]
+- Make more [[Realms]]
+- Make more [[Gods]]
+- Remember that idea for another type of magic user you had, Poseidon.
+- Create more resources
+- Flesh out already existing realms
+- Actually write stuff
