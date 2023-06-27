@@ -49,7 +49,7 @@
   [[Soulfire]]
   [[Portals.]]
 
-[[Realms and Worlds]]
+[[Realms]]
  [[1930's]]
  [[Kato Apo]]
  [[Medieval]]

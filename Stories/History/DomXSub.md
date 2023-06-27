@@ -1,3 +1,5 @@
+Taking place in [[Medieval]]
+
 *There were two lands long ago, [[Submissia]] and [[Dominatus]]. Both were cursed by the [[Gods]]. [[Submissia]] was cursed so that all it’s citizens would be bottoms, and [[Dominatus]] so that all their’s would be tops. The curses were not equal though.
 In [[Dominatus]] when people would have sex they both would want to dominate the other, so while it would be a constant struggle for supremacy the sex would still happen. In [[Submissia]] however both parties want to be dominated, but the other wouldn’t act on that because they wanted the other too, thus sex in [[Submissia]] was practically impossible. 
 
