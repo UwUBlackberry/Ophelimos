@@ -1,1 +1,1 @@
-a sub-type of [[Death]] [[Magic]]
+An [[Octave]] of [[Death]] [[Magic]] that allows the user to control their blood to create things or on some occasions use spells from an entirely different [[Note]] of magic that the user doesn't know how to use.

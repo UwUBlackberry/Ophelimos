@@ -1,0 +1,1 @@
+Time [[Magic]] is a [[Note]] that allows users to manipulate time, most commonly only being able to stop it for a short amount of time

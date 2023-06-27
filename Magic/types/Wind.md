@@ -1,0 +1,1 @@
+Wind [[Magic]] is a [[Note]] that allows the user to control the air itself

@@ -1,0 +1,1 @@
+Anti is a [[Note]] that... It's a Deus Ex Machina essentially. I don't want to figure out how to write this correctly and it's essentially just supposed to be a no fuck you to both physical and magical properties. It's like counter spell if it worked on a currently being swung sword.

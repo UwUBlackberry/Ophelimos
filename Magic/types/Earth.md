@@ -1,0 +1,1 @@
+Earth [[Magic]] is a [[Note]] that allows users of it to control the earth itself

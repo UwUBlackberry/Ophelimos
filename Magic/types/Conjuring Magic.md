@@ -1,0 +1,1 @@
+Conjuring [[Magic]] is a [[Note]] that allows the user to conjure items such as swords or coffee mugs.

@@ -1,1 +1,1 @@
-amplifies, hushes, directs, and generates sound waves. The vibrations in sound waves can be lethal at the right frequencies, passing through solid objects and cover with ease.
+Sound [[Magic]] is a [[Note]] that amplifies, hushes, directs, and generates sound waves. The vibrations in sound waves can be lethal at the right frequencies, passing through solid objects and cover with ease.

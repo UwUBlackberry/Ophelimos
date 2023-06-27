@@ -1,0 +1,1 @@
+Life [[Magic]] is a [[Note]] that completely encompasses the meaning of life. This is the type of magic where most types of spells that would usually heal a person come from, and in very few cases, spells that can bring people back to life. Although spells that resurrect people in any way (ESPECIALLY [[Necromancy]]), are considered taboo

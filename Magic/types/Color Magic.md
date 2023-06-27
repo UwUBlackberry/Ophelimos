@@ -1,1 +1,1 @@
-manipulates light in the visual spectrum to create potent optical illusions. It could also be used to blind an opponent but this would be considered a crude application by most respectable photokinetics.
+Color [[Magic]] is a [[Note]] that ,=manipulates light in the visual spectrum to create potent optical illusions. It could also be used to blind an opponent but this would be considered a crude application by most respectable photokinetics.

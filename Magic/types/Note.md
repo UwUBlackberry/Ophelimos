@@ -1,0 +1,1 @@
+Notes are the name of what people use to refer to different types of magic, i.e. [[Fire]], [[Wind]], [[Water]], etc.

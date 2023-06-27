@@ -1,1 +1,1 @@
-A sub-type combination of [[Magic]] between [[Water]] and [[Death]]
+Poison [[Magic]] is an [[Octave]] combination between [[Water]] and [[Death]] [[Magic]] that allow for the creation of poison in forms of both liquid and gas.

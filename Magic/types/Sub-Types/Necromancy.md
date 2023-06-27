@@ -1,1 +1,1 @@
-A sub-type of [[Death]] [[Magic]].
+Necrophilia (wait-) [[Magic]] is an [[Octave]] of [[Death]] [[Magic]] combined with [[Life]] [[Magic]] that allows the resurrection of people under complete control of the user as creatures like zombies, skeletons, or if a more powerful user, whatever they're resurrecting will default to it's prime form instead of something like a skeleton.

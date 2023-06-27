@@ -1,1 +1,1 @@
-A sub-type of [[Fire]] [[Magic]].
+Soulfire is an [[Octave]] of [[Fire]] [[Magic]]. Soulfire only happens when someone becomes so efficient in fire magic that their flame grows so hot that it becomes blue.

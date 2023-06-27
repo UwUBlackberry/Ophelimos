@@ -21,7 +21,7 @@
    [[Magicians]]
    [[Quavers]]
  Types
-   [[Anti (It's a no u but for everything including magic)]]
+   [[Anti]]
    [[Color Magic]]
    [[Death]]
    [[Earth]]
@@ -47,7 +47,7 @@
   [[Necromancy]]
   [[Poison]]
   [[Soulfire]]
-  [[Portals.]]
+  [[Portal]]
 
 [[Realms]]
  [[1930's]]

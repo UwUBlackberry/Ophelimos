@@ -1,1 +1,1 @@
-is the manipulation of the very concept of nothingness. Not quite shadow magic, this system would allow the caster to conjure fields of pure void to shield or consume.
+Void [[Magic]] is a [[Note]] that is the manipulation of the very concept of nothingness. Not quite shadow magic, this system would allow the caster to conjure fields of pure void to shield or consume.

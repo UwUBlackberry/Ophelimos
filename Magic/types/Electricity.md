@@ -1,0 +1,1 @@
+Electricity [[Magic]] is a [[Note]] that allows the user to create and control thing such as electric currents and lightning

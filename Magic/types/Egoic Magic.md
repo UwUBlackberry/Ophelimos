@@ -1,0 +1,1 @@
+Egoic [[Magic]] is a [[Note]] that allows the user to enhance or directly change certain parts of their body for an amount of time

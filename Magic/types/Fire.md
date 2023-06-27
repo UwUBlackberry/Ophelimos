@@ -1,0 +1,1 @@
+Fire [[Magic]] is a type of [[Note]] that allows the user to create and control fire

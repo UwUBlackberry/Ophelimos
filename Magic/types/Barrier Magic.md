@@ -1,0 +1,1 @@
+Barrier [[Magic]] is a [[Note]] that can create barriers capable of not letting objects pass through them, making them useful to be used as shields.

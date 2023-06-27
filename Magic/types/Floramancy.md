@@ -1,0 +1,1 @@
+Flora [[Magic]] is a [[Note]] that allows the user to do things like grow flowers, drag vines from below the earth and control them, and smell nice.

@@ -1,0 +1,1 @@
+Gravity [[Magic]] is a [[Note]] that allows the control of gravity in a few different ways, such as creating orbs that pull things into them or push things away from them and being able to manipulate a person's own gravitational pull

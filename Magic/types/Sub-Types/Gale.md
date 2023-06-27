@@ -1,1 +1,1 @@
-A sub-type of [[Wind]] [[Magic]]
+An [[Octave]] of [[Wind]] [[Magic]]. It's essentially just a more powerful wind magic, most commonly coloring the air being controlled a light mint green

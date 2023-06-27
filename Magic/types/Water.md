@@ -1,0 +1,1 @@
+Water [[Magic]] is a [[Note]] that allows the manipulation and on occasion, the creation of water.
