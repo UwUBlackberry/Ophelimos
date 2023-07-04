@@ -1,2 +1,3 @@
-****Breves** are essentially [[Magicians]] who decide instead of learning, understanding, and memorizing the fundamentals of [[Magic]], they inscribe magical equations on objects (Typically some form of paper), allowing them to cast spells with less training. However, these spells are most commonly less powerful than the typical magician.
+****[[Breve]]s** are essentially [[Magicians]] who decide instead of learning, understanding, and memorizing the fundamentals of [[Magic]], they inscribe magical equations on objects (Typically some form of paper), allowing them to cast spells with less training. However, these spells are most commonly less powerful than the typical magician.
 
+These users are not to be confused with [[Artisans]], who apply the same practices while using magic but in a more elegant and artistic way, allowing for both more powerful magic than the average Breve and a changed appearance to the usual appearance of the [[Note]](s) that they're using.
