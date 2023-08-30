@@ -1,1 +1,1 @@
-Soulfire is an [[Octave]] of [[Fire]] [[Magic]]. Soulfire only happens when someone becomes so efficient in fire magic that their flame grows so hot that it becomes blue.
+Soulfire is an [[Octave]] of [[Fire]] [[Magic]]. Soulfire only happens when someone becomes so efficient in fire magic that their flame grows so hot that it becomes a color fitting the soul of the user. However, most the time it is blue, and no one but a choice few of the gods know what color represents what.
